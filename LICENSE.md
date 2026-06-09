@@ -1,4 +1,4 @@
-# 
+# Premium MEV sniper bot herramientas para Mac OS | Instantáneo MEV sniper bot herramientas para PC Windows. Con oyentes de eventos y comercio en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
