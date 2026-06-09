@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Radiancenopray.github.io/mev-sniper-ot-pcwinmac-wm03/ ) |
  |---------------------|----------------------:|
 
 
